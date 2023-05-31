@@ -2,4 +2,4 @@
 
 73 anu :sunglasses:
 
-EX PRESIDIARIO 😙
+EX PRESIDIARIO 😙(mas apenas por homicídio!!!)
