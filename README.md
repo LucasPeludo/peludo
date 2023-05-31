@@ -1,8 +1,2 @@
-# BEM VINDuhh :joy:
-luquinha-capuuduhhhh 😸
-🔥🔥🔥🔥🔥🔥🔥🔥**10 ANUS** 😈🔥🔥🔥🔥🔥🔥🔥🔥
-
-#_O MAIS INSANO DE PORTUGAL 🇨🇬_
-
-# querr ser meuh amigueh 😏 ▶️ (41) 7497-7214
-
+#![texto-alternativo](<a href="https://cooltext.com"><img src="https://images.cooltext.com/5659391.gif" width="431" height="90" alt="BEM VINDO" /></a>
+<br />Image by <a href="https://cooltext.com">Cool Text: Free Graphics Generator</a> - <a href="https://cooltext.com/Edit-Logo?LogoID=4366818744">Edit Image</a>)
