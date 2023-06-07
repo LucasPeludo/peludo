@@ -3,3 +3,5 @@
 73 anu :sunglasses:
 
 EX PRESIDIARIO 😙(mas apenas por homicídio!!!)
+
+*GOSTO DE MULHERES* 😈 !CASO QUEIRA ENTRAR EM CONTATO ▶️98408-1558 ☎️
